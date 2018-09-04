@@ -1,1 +1,1 @@
-learn
+learn study good
